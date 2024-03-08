@@ -1,2 +1,2 @@
 
-Hey! I'm Pranshu - a student at Manipal University.
+Hey! I'm Pranshu
