@@ -1,1 +1,1 @@
-Focused on optimization, performance and SOL.
+"For those that come after"
